@@ -1,3 +1,0 @@
-Inicio
-
-Segundo Inicio
